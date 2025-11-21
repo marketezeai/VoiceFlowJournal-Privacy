@@ -276,7 +276,7 @@ VoiceFlow Journal is designed to be the most private journaling app on the App S
 
 ---
 
-**Questions?** Contact: support@voiceflow.app
+**Questions?** Contact: cmb211087@gmail.com
 
 **Last Updated:** November 20, 2025
 
